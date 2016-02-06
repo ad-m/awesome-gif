@@ -8,3 +8,5 @@
 # Leszke
 * mówię ci to ja prezydent mirko, usuń konto ([imgur](http://i.imgur.com/scFhGZe.gifv))
 * co by tu dzisiej([imgur](http://i.imgur.com/bxHLOgS.gifv))
+* mirki i mireczki, polskiej rzeczypospolitej mirko ([gfycat](http://gfycat.com/ShamefulAnchoredElephantbeetle))
+
