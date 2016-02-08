@@ -6,7 +6,8 @@
 * łap plusa, bonzo ([imgur](http://i.imgur.com/Y4liQmV.gifv))
 * wykopMLMclub ([gfycat](http://gfycat.com/PoliticalSharpAbyssiniangroundhornbill))
 * kiedy wchodzę na wykopalisko ([gfycat](http://gfycat.com/MiserableWhichAndeancondor))
-* tylko mirko (gala) [gfycat](http://gfycat.com/HotFancyCassowary))
+* tylko mirko (gala) ([gfycat](http://gfycat.com/HotFancyCassowary))
+* no elo karyna ([gfycat](http://gfycat.com/GloomyTartAtlasmoth))
 
 # Leszke
 * mówię ci to ja prezydent mirko, usuń konto ([imgur](http://i.imgur.com/scFhGZe.gifv))
