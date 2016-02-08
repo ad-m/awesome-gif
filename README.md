@@ -8,6 +8,7 @@
 * kiedy wchodzę na wykopalisko ([gfycat](http://gfycat.com/MiserableWhichAndeancondor))
 * tylko mirko (gala) ([gfycat](http://gfycat.com/HotFancyCassowary))
 * no elo karyna ([gfycat](http://gfycat.com/GloomyTartAtlasmoth))
+* mój ideał mężczyzny to … - #alizee ([gfycat](http://gfycat.com/UnknownEmbarrassedArctichare))
 
 # Leszke
 * mówię ci to ja prezydent mirko, usuń konto ([imgur](http://i.imgur.com/scFhGZe.gifv))
