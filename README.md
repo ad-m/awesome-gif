@@ -10,6 +10,7 @@
 * no elo karyna ([gfycat](http://gfycat.com/GloomyTartAtlasmoth))
 * mój ideał mężczyzny to … - #alizee ([gfycat](http://gfycat.com/UnknownEmbarrassedArctichare))
 * zwierz daje plusy ([gfycat](http://gfycat.com/FlickeringInstructiveClingfish))
+* tag #rozdajo na wykopie ([gfycat](http://gfycat.com/GraveDigitalArchaeocete))
 
 # Leszke
 * mówię ci to ja prezydent mirko, usuń konto ([imgur](http://i.imgur.com/scFhGZe.gifv))
