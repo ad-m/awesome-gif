@@ -12,6 +12,8 @@
 * zwierz daje plusy ([gfycat](http://gfycat.com/FlickeringInstructiveClingfish))
 * tag #rozdajo na wykopie ([gfycat](http://gfycat.com/GraveDigitalArchaeocete))
 * spam PIS-u ([gfycat](http://gfycat.com/SlightNegativeCoypu))
+* która grupa śmiga ([gfycat](http://gfycat.com/PessimisticUnimportantDuckbillcat))
+
 # Leszke
 * mówię ci to ja prezydent mirko, usuń konto ([imgur](http://i.imgur.com/scFhGZe.gifv))
 * co by tu dzisiej([imgur](http://i.imgur.com/bxHLOgS.gifv))
