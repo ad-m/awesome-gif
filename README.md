@@ -13,6 +13,7 @@
 * tag #rozdajo na wykopie ([gfycat](http://gfycat.com/GraveDigitalArchaeocete))
 * spam PIS-u ([gfycat](http://gfycat.com/SlightNegativeCoypu))
 * która grupa śmiga ([gfycat](http://gfycat.com/PessimisticUnimportantDuckbillcat))
+* Jak wygląda Twoj idealny mężczyzna? ([gfycat](http://gfycat.com/SpotlessExemplaryEagle))
 
 # Leszke
 * mówię ci to ja prezydent mirko, usuń konto ([imgur](http://i.imgur.com/scFhGZe.gifv))
