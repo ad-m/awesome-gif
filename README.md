@@ -15,10 +15,24 @@
 * która grupa śmiga ([gfycat](http://gfycat.com/PessimisticUnimportantDuckbillcat))
 * Jak wygląda Twoj idealny mężczyzna? ([gfycat](http://gfycat.com/SpotlessExemplaryEagle))
 * Co na mirko? ([gfycat](http://gfycat.com/NecessaryBasicBoto))
+* To ja - myśli mirka ([gfycat](https://gfycat.com/EarlyFamousHawk))
+* mirku, czujesz? ([gfycat](http://gfycat.com/GoldenHardDamselfly))
+* rozowy pasek wrzucajacy swoja fotke na #pokazmode ([gfycat](http://gfycat.com/PleasedUnconsciousBagworm))
+* wczoraj pod moim wpisem na mirko ([gfycat](http://gfycat.com/InsidiousWaryIceblueredtopzebra))
+* normalnie sobie mirkuje ([gfycat](http://gfycat.com/UnfitOpulentAppaloosa))
+* @Velati #wolnyrynek @FilozoujacaCalka ([gfycat](http://gfycat.com/BruisedFlippantBetafish))
+* w moim sercu tylko mirko ([gfycat](http://gfycat.com/AcrobaticNeedyArabianhorse))
+* #4konserwy #neuropa ([gfycat](http://gfycat.com/LongAdorableDunnart))
+* chodzi o to ze to znalezisko znika ([gfycat](http://gfycat.com/ThreadbareElegantHowlermonkey))
+* #4konserwy @Velati - losowanie ([gfycat](http://gfycat.com/MinorPeriodicAnt))
 
 # Leszke
 * mówię ci to ja prezydent mirko, usuń konto ([imgur](http://i.imgur.com/scFhGZe.gifv))
 * co by tu dzisiej([imgur](http://i.imgur.com/bxHLOgS.gifv))
 * mirki i mireczki, polskiej rzeczypospolitej mirko ([gfycat](http://gfycat.com/ShamefulAnchoredElephantbeetle))
-* tylko mirko (gala) [gfycat](http://gfycat.com/HotFancyCassowary))
+* tylko mirko (gala) ([gfycat](http://gfycat.com/HotFancyCassowary))
+* panie prezydencie, jak wejść w gorące ([gfycat](http://gfycat.com/BountifulCarelessDaddylonglegs))
+* moi poddani wciąż do mnie piszą ([gfycat](http://gfycat.com/DopeyReliableEft))
+* 
 
+http://www.wykop.pl/wpis/11260488/w-tym-wpisie-wybieramy-najlepszy-gif-z-tematyka-wy/
