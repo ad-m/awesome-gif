@@ -14,6 +14,7 @@
 * spam PIS-u ([gfycat](http://gfycat.com/SlightNegativeCoypu))
 * która grupa śmiga ([gfycat](http://gfycat.com/PessimisticUnimportantDuckbillcat))
 * Jak wygląda Twoj idealny mężczyzna? ([gfycat](http://gfycat.com/SpotlessExemplaryEagle))
+* Co na mirko? ([gfycat](http://gfycat.com/NecessaryBasicBoto))
 
 # Leszke
 * mówię ci to ja prezydent mirko, usuń konto ([imgur](http://i.imgur.com/scFhGZe.gifv))
