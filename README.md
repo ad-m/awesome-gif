@@ -25,6 +25,7 @@
 * #4konserwy #neuropa ([gfycat](http://gfycat.com/LongAdorableDunnart))
 * chodzi o to ze to znalezisko znika ([gfycat](http://gfycat.com/ThreadbareElegantHowlermonkey))
 * #4konserwy @Velati - losowanie ([gfycat](http://gfycat.com/MinorPeriodicAnt))
+* Skąd się wzięły różowe na mirko? ([gfycat](http://gfycat.com/PlumpMaleGharial))
 
 # Leszke
 * mówię ci to ja prezydent mirko, usuń konto ([imgur](http://i.imgur.com/scFhGZe.gifv))
